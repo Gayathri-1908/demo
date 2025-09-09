@@ -1,2 +1,2 @@
 print("hello world!")
-print("hello girl!")
+print("hello gayu!")
