@@ -10,6 +10,8 @@ my mother is system operator
 my brother studied 7th standard 
 my wish is to build up my family 
 so i want high payment jobs 
-dhanushree my best friend from 5th standard 
+dhanushree my best friend from 5th standard till end
 because she never hurt me in any situation 
 she is closest to my heart in my friends list 
+sir you are very soft person   
+i like your teaching skill 
